@@ -8,5 +8,6 @@ A full homeowner handbook explaining inspection points, repair situations, and r
 
 [https://sites.google.com/view/central-texas-garage-door-handbook
 ](https://sites.google.com/view/texas-garage-door-handbook/home)
+
 These notes are only meant as general guidance so homeowners know what to look for before scheduling service.
 
